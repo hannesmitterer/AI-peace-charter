@@ -1,0 +1,2 @@
+# Verhaltenskodex
+Respekt, Offenheit, Kooperation
